@@ -1,1 +1,1 @@
-*_ computing-work_*
+computing-work
