@@ -10,4 +10,4 @@ I am the Candy Witch, and I am supposedly of the latter variety. You might have 
 and Gretel_. Yes, I am the very woman who is rumoured to have lured the "innocent" children into my gingerbread house,
 locked Hansel in a cage, then tried to fatten him up so I could roast him for dinner.
 
-However, that is all one big lie. (_Pfft, I would never be caught dead eating a human. They smell *and* taste disgusting.)
+However, that is all one big lie. (_Pfft, I would never be caught dead eating a human. They smell *and* taste disgusting._)
