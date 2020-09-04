@@ -17,7 +17,7 @@ So, without asking for permission or waiting to be invited, they started to devo
 
 I frowned at their jeering remarks, my blood starting to boil. Yet, I continued to keep my frustration. in check. "That is not the point, dearies. The point is that my house belongs to **me**. It is very rude to eat something that belongs to someone else!" I chided.
 
-"We don't care," hansel and Gretel said in unison, their hands on their hips. The duo continued to stuff their faces with delicious sweet treats with a pinch of guilt. Then, Hansel proceeded to take a huge bite out of the chocolate tiara my mother had left behind for me before she passed. **That was the last straw.** _These two insolent fools!_ My anger spilt out of me like an overflowing pot of stew. In a fit of rage, I grabbed Hansel by his chestnut hair and threw him into a cage.
+"We don't care," Hansel and Gretel said in unison, their hands on their hips. The duo continued to stuff their faces with delicious sweet treats without a pinch of guilt. Then, Hansel proceeded to take a huge bite out of the chocolate tiara my mother had left behind for me before she passed. **That was the last straw.** _These two insolent fools!_ My anger spilt out of me like an overflowing pot of stew. In a fit of rage, I grabbed Hansel by his chestnut hair and threw him into a cage.
 
 "Now, Gretel, dearie," I spoke in a sickeningly sweet voice. "You will clean up this mess before I let both of you go," I warned, in the hopes that Hansel and Gretel would learn not to be so rude in the future. With tears running down her cheeks faster than my heartbeat, Gretel sobbed as she swept the remains of my chest of drawers out of the front door.
 
@@ -25,6 +25,6 @@ Over the next few hours, Gretel cleaned the house until it was spick and span. W
 
 I thought that that would be the end of the matter, but little did I know how wrong I was. The moment I laid my eyes on the village newspaper the next morning, I spit out my morning hot chocolate. Fists clenching the newspaper, anger curled hot and unstoppable in my gut, like a burning inferno that wanted to burn me inside and out.  As it turns out, unruly Hansel and Gretel had returned home and told their horrid parents that **I** had forced them to eat candy and had thrown them in my stew pot to be cooked. "The little brats!" I cursed under my breath. 
 
-The dreadful parents, of course, believed their awful children and told everyone they knew. Since no one ever believes a witch, Hansel and Gretel's version of the story was pyblished in bestselling fairytale books. Thus, my reputation as a child-eating monster stuck to me like gooey caramel.
+The dreadful parents, of course, believed their awful children and told everyone they knew. Since no one ever believes a witch, Hansel and Gretel's version of the story was published in bestselling fairytale books. Thus, my reputation as a child-eating monster stuck to me like gooey caramel.
 
 However, now that you have heard my side of the story, do you still think I am an evil witch? Or do you still believe that nasty lie Hansel and Gretel had spread?
