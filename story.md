@@ -15,7 +15,7 @@ So, without asking for permission or waiting to be invited, they started to devo
 
 "And mortar," Gretel added between bites of a rope curtain made of black licorice, smirking. Her brother sniggered.
 
-I frowned at their jeering remarks, my blood starting to boil. Yet, I continued to keep my frustration. in check. "That is not the point, dearies. The point is that my house belongs to **me**. It is very rude to eat something that belongs to someone else!" I chided.
+I frowned at their jeering remarks, my blood starting to boil. Yet, I continued to keep my frustration in check. "That is not the point, dearies. The point is that my house belongs to **me**. It is very rude to eat something that belongs to someone else!" I chided.
 
 "We don't care," Hansel and Gretel said in unison, their hands on their hips. The duo continued to stuff their faces with delicious sweet treats without a pinch of guilt. Then, Hansel proceeded to take a huge bite out of the chocolate tiara my mother had left behind for me before she passed. **That was the last straw.** _These two insolent fools!_ My anger spilt out of me like an overflowing pot of stew. In a fit of rage, I grabbed Hansel by his chestnut hair and threw him into a cage.
 
